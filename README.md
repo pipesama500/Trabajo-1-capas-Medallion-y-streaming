@@ -4,7 +4,7 @@
 
 **Integrante:** Felipe Martinez Cortes
 
-**Video:** -
+**Video:** https://youtu.be/JEytxEiOExI
 
 ---
 
